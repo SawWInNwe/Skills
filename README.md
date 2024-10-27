@@ -1,0 +1,1 @@
+In this series, it included with Level 3 Diploma( Highschool Diploma) , 2 of my Recommendation Letter from Teachers and School, MOI letter, HND Diploma Transcript and both of the full Diploma paper as well included with Passport and Visa pages.  
